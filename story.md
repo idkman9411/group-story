@@ -1,1 +1,1 @@
-Once upon a time, a cat walked into a sunlit room.
+Once upon a time, a cat walked into a sunlit room. The cat looked around the room. First, it batted at the spools of yarn. Then it knocked the needles on the desk onto the floor. Finally, it jumped on a beanbag and laid down in a nice, warm sunbeam
